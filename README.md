@@ -31,7 +31,7 @@
     - Module3 -> https://forms.gle/ZYk9T4eD3eWHeDyMA
     - Module4 -> https://forms.gle/LbWsxZgbouAjThCn7
 
-  - **Project Submission**
+  - **Project Submission Last Date: 15th December 2024**
     - Link -> https://forms.gle/WKJ41c59K9KwDHwT8
 
 ---
